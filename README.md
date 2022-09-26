@@ -1,0 +1,2 @@
+# Media_Alun0_Com_Variaveis
+Media_Alun0_Com_Variaveis
